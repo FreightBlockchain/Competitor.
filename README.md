@@ -1,2 +1,2 @@
 # Competitor.
-Ad: [Demand Gen Deacom Customer Testimonial Ad :30 secs landscape](https://youtu.be/ZUvwP5vI2OU) Lander: - channel: https://www.youtube.com/@ECISoftwareSolutions
+Ad: [Demand Gen Deacom Customer Testimonial Ad :30 secs landscape](https://youtu.be/ZUvwP5vI2OU) Lander: https://www.ecisolutions.com/products/deacom-erp-software/?utm_source=Google-Ads&utm_medium=ppc&utm_campaign=25Q1-MFG-ROW-SCM-Google-NA-Deacom-Prospecting-DemandGen&utm_term=&utm_content=Competitor%20Websites&gad_source=2&gclid=Cj0KCQjwlYHBBhD9ARIsALRu09rwCR0Xy2XeFi9VrpoWdyVkHGwfzAz3No9MQgmN0ieft1FMv4hu978aAl64EALw_wcB - channel: https://www.youtube.com/@ECISoftwareSolutions
